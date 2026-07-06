@@ -1,4 +1,4 @@
-# 
+# Último GitKraken herramientas para Mac OS | Exclusivo GitKraken herramientas para PC Windows. Con perfilador y scripts de prueba — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
